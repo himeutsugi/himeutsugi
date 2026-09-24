@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://postimg.cc/N9FhzXss">
+  <img src="https://ibb.co/pBFbdxq9">
 </p>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=q1smmdjtqd6ppy295wyoe1tm6&redirect=true">
