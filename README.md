@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/arTqOtPtbJiHQW8Z/hanaawase.png">
+  <img src="https://file.garden/arTqOtPtbJiHQW8Z/hana-awase.png">
 </p>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=q1smmdjtqd6ppy295wyoe1tm6&redirect=true">
